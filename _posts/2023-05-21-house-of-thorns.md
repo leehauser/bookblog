@@ -2,9 +2,9 @@ Artificial Intelligence has been part of science fiction for *long* time. It tak
 
 These AIs personify our hopes and fears about AI: that it will be benevolent to humanity; that it will grow beyond humanity; that it will be so focused on whatever mission it is given that people don't matter; or that it will destroy us all.
 
-When Detective Maritza Smith of the China Lake Police Precinct receives a call from Rose House reporting a murder, she knows she's talking to an AI. She just doesn't know what kind.
-
 *Rose/House* is a new novella from Arkady Martine, author of the multi award-winning Tiexcallan books *A Memory Called Empire* and *A Desolation Called Peace.* I downloaded and read the book the day I learned of it. 
+
+When Detective Maritza Smith of the China Lake Police Precinct receives a call from Rose House reporting a murder, she knows she's talking to an AI. She just doesn't know what kind.
 
 Rose House the structure sits alone in the desert, isolated and closed since the death of its celebrity architect, watched over by Rose House the AI, who is tasked with protecting its creator's legacy. No one gets to come in except its unwilling non-archivist, Selene Gisil, and then for only a week a year. Gisil hates Rose House, and couldn't even stand being in the house for all that allotted week.
 
