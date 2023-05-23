@@ -1,8 +1,8 @@
-Artificial Intelligence has been part of science fiction for *long* time. It takes many forms: the menacing AI of Colossus in *Colossus: The Forbin Project* or HAL in *2001: A Space Odyssey*; the kind but ultimately transcendant Samantha in *Her*; and the murderous SkyNet of the *Terminator* movies, to name just a few.
+Artificial Intelligence has been part of science fiction for *long* time. It takes many forms: the menacing AI Colossus in *Colossus: The Forbin Project* or HAL in *2001: A Space Odyssey*; the kind but ultimately transcendant Samantha in *Her*; and the murderous SkyNet of the *Terminator* movies, to name just a few.
 
 These AIs personify our hopes and fears about AI: that it will be benevolent to humanity; that it will grow beyond humanity; that it will be so focused on whatever mission it is given that people don't matter; or that it will destroy us all.
 
-*Rose/House* is a new novella from Arkady Martine, author of the multi award-winning Teixcalaan books *A Memory Called Empire* and *A Desolation Called Peace.* I downloaded and read the book the day I learned of it. 
+*Rose/House* is a new novella from Arkady Martine, author of the multi award-winning Teixcalaan series books *A Memory Called Empire* and *A Desolation Called Peace.* I downloaded and read the book the day I learned of it. 
 
 When Detective Maritza Smith of the China Lake Police Precinct receives a call from Rose House reporting a murder, she knows she's talking to an AI. She just doesn't know what kind.
 
