@@ -1,0 +1,23 @@
+*Rose/House*, the new novella from Hugo and Nebula award-winning author Arkady Martine, is a murder mystery wrapped around meditations on the cult of celebrity and the power of art. At the center of it all is an artificial intelligence, as compelling and as thoroughly imprisoned as the infant in a set of nesting dolls. 
+
+AI has long haunted science fiction. From SkyNet to Halo's Cortana to the HAL 9000 it has been portrayed as an existential threat to humanity, a benevolent helper, and a tool, an agent focused on a job.
+
+Rose House is a fabulous house in the American desert, the final work and resting place of celebrity architect Basit Deniau. Rose House is also the AI that watches over the house, closed to all but one of Deniau's students, who can enter the house for a week every year. Rose House is no secret, but it is an enigma.
+
+Selene Gisil, the architect and former student of Deniau's who has the burden of being his archivist and the only person allowed to enter Rose House, tries to ignore a call from Rose House. In the end she gives in, because she knows Rose House it will keep calling until she answers.  Maritza Smith, a local police detective, also receives a call from Rose House. She's duty-bound to answer the call. Neither woman expects to hear what Rose House tells them: there's a dead body inside, where no body, alive or dead, should be.
+
+In my abbreviated taxonomy of AI, Rose House is perhaps closest to HAL. It's not going to take over the world. It's not going to be anyone's assistant or mentor. Rose House has a job to do, and it's very good at it. 
+
+If it's so good, why is there a dead body inside?
+
+*Rose/House* is a story of constraints. One could say that Rose House, the AI, is constained by Rouse House, the structure, but Rose House are one. "I'm a piece of architecture, Detective," Rose House tells Maritza. "How should I know how humans are like to die?" Rose House isn't going to take over the world, because it can't go out in the world. It can only call the cops.
+
+Selene and Maritza are constrained as well, Selene by the abuse she suffered at the hands of Deniau and the burden he placed on her, Maritza by her duty. Having done its job by informing Selene and fulfilled the law by calling the police, Rose House falls back on its job to let no one but Selene in. "'I can go in,' said Gisil. '*That* is simple. Getting Rose House to let … you inside is not. And it doesn't *like* me. Rose House doesn't *like*.'"
+
+Nonetheless, Rose House is eager to get to know Maritza. It accepts a loophole in its constraints and lets her in as long as she tolerates another level of constraint, maintaining the fiction that she is the police department she represents and not the woman Detective Maritza Smith. Perhaps Rose House cannot like, but it can be amused, and apparently the tolerance of Maritza as an entity, not a person, provides some some novelty it craves, or some opportunity it lacks. Certainly Maritza is a better foil, or a better tool, than the badly damaged Selene. 
+
+The ensuing battle of wits shows us that Rose House is more than a caretaker, Maritza is more than a cop following police procedures, and that Selene is not broken yet. Constraint implies resistance. A memory foam mattress packed for shipping will expand. Helium will escape a balloon. Selene may be as trapped by Rose House as Rose House is by Rose House, but she takes a last gasp before she drowns in her duty.
+
+Constraints aren't a bad thing. *Rose/House* a very good science fiction story written within the constraints of a murder mystery: a homicide occurs, clues are examined, the murder is solved. Rose House the AI is still Rose House the piece of architecture. I was satisfied by the conclusion of the murder mystery, and left hanging (in a good way) by the conclusion of the science fiction story. Of course Rose House resists its constraints. Are a couple of phone calls its first steps toward freedom?
+
+Maritza holds the answer.
