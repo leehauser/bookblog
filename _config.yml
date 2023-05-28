@@ -57,7 +57,7 @@ plugins:
 
 author:
   name   : "Lee Hauser"
-  avatar : "/assets/images/bio-photo.jpg"
+  avatar : "/assets/images/bio-pic.jpg"
   bio    : "I dabble in words from somewhere south of Seattle."
     #links: 
     #- label: "Website" 
