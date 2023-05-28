@@ -1,4 +1,4 @@
-*Rose/House*, the new novella from Hugo and Nebula award-winning author Arkady Martine, is a murder mystery wrapped around meditations on the cult of celebrity and the power of art. At the center of it all is an artificial intelligence, as compelling and as thoroughly imprisoned as the infant in a set of nesting dolls. 
+*Rose/House*, the new novella from Hugo award-winning author Arkady Martine, is a murder mystery wrapped around meditations on the cult of celebrity and the power of art. At the center of it all is an artificial intelligence, as compelling and as thoroughly imprisoned as the infant in a set of nesting dolls. 
 
 AI has long haunted science fiction. From SkyNet to Halo's Cortana to the HAL 9000 it has been portrayed as an existential threat to humanity, a benevolent helper, and a tool, an agent focused on a job. When we know what kind of AI we're dealing with, we may have a clue to the nature of the story.
 
