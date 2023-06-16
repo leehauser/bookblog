@@ -1,4 +1,4 @@
-![Ladybug](/assets/images/ladybug.jpg)
+![Ladybug](/assets/images/ladybug2.jpg)
 
 *Rose/House*, the new novella from Hugo award-winning author Arkady Martine, is a murder mystery wrapped around meditations on the cult of celebrity and the power of art. At the center of it all is an artificial intelligence, as compelling and as thoroughly imprisoned as the infant in a set of nesting dolls. 
 
